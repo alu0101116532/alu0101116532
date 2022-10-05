@@ -1,4 +1,4 @@
-- 👋 Hola, soy @alu0101116532
+- 👋 Hola, soy Patricia Angélica Martínez-Polo Johnson
 - 👀 Mis intereses son viajar, la fotografia y el deporte
 - 🌱 Actualmente estudio el Grado en Ingeniería Informática
 
